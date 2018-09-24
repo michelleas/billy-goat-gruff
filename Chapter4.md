@@ -1,6 +1,6 @@
 Billy the Goat ventures outdoors.
 
-After having learned the alphabet, how to count, and how to speak English, Billy the Goat decided it was time to venture outside.
+After having failed at learning the alphabet, failing at trying to count, and failing to speak English, Billy the Goat decided it was time to venture outside.
 He wanted to practice the new skills he learned, so he took a walk around the block.
 Billy the Goat saw some bushes and realized he was hungry.
 As he started eating the bushes, he counted them.
